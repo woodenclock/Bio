@@ -1,2 +1,3 @@
 # Hi there 😁. Hope you are doing great!
-### ![wave](https://github.com/woodenclock/woodenclock/assets/69474977/27259d8c-5a22-43fc-8067-040c9f759e3b)
+![ezgif-5-e1efd8a52c](https://github.com/woodenclock/woodenclock/assets/69474977/44e126c8-78e2-4169-be1a-a5a0a0266225)
+
