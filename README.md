@@ -7,4 +7,4 @@ I am Min, a Computer Engineering student at [NUS](https://nus.edu.sg/).
 Connect with me through the links at the side.   
 Feel free to message me too via Telegram!   
 
-![image](https://github.com/woodenclock/woodenclock/assets/69474977/7b84c0a1-d2f4-4b9c-a63c-841a311e631e)  
+![image](https://github.com/woodenclock/woodenclock/assets/69474977/39689b49-9452-41bd-984f-a9aa8ddaac94)  
